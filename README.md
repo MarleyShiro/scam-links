@@ -120,16 +120,6 @@ http://discorl.com
 
 https://discorde.gift/
 
-http://discordn.gift/
-
-https://diiscord.gift/
-
-http://dicocrdapp.gift/
-
-http://discond.gift/
-
-http://discorcl.gift/
-
 ## Rickrolls
 
 https://discordgift.site/
